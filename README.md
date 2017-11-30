@@ -1,4 +1,4 @@
-# icons-flat-dbz
+# DRAGON BALL ICON SET
 
 Free flat Dragon Ball icons
 
