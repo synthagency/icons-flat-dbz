@@ -2,4 +2,4 @@
 
 Free flat Dragon Ball icons
 
-Preview : https://synth.agency/lab/dragon-ball/
+Preview : https://synth.agency/blog/iconsets/dragon-ball/
